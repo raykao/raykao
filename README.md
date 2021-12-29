@@ -4,4 +4,4 @@
 - 💬 Ask me about Multiversal comic book history
 - 📫 How to reach me: @RayKao on Twitter and GH
 
-https://media.giphy.com/media/L3ut1TkDIqduYKM21D/giphy.gif
+![](https://media.giphy.com/media/L3ut1TkDIqduYKM21D/giphy.gif)
